@@ -1,10 +1,10 @@
-## "I think it's about time that I warned you I might cry in front of you." 
+## giggles
 
 
 <!--
 **noval1te/noval1te** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- "I think it's about time that I warned you I might cry in front of you."
 
 -💤I’m either on ponytown,drawing or sleepin!
 
